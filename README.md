@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Mame Diarra. I am a freshman at NYU intending to persue a double major in computer science and computer enginnering.
 - I am looking to collaborate on projects, creating projects of my own, and connecting with people.
 - My hobbies include modelling (fun fact, I walked in New York Fashion Week,) acting, singing, basketball, and tennis.
-- You could contact me on Instagram: mam3diarra or via email: diakhate.mame305@gmail.com
+- You could contact me on Instagram: mam3diarra or via email: diakhate.mamediarra.cs@gmail.com
